@@ -1,0 +1,2 @@
+# Abdi7
+Faktor
